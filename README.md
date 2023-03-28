@@ -1,1 +1,0 @@
-# LOG8371-Bricks
